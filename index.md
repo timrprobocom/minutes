@@ -2,5 +2,5 @@
 This is only a test.
 
 - [2020-01-13](2020-01-13.md)
-- [OFSRDC](OFSRDC)
+- [OFSRDC](OFSRDC/index.md)
 
