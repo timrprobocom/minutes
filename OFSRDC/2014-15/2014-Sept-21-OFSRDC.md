@@ -13,7 +13,7 @@ Modified: 2016-06-29 09:31:20 -0700
 
 
 
-September 21, 2014
+September 21, 2014   
 Salem Square Dance Center, Salem
 
 

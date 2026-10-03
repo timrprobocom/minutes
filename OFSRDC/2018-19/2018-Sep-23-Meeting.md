@@ -6,7 +6,7 @@ Modified: 2019-01-27 09:18:28 -0800
 
 ---
 
-September 23, 2018
+September 23, 2018   
 Salem Square Dance Center
 
 **Prelims**

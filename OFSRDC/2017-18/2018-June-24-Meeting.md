@@ -6,7 +6,7 @@ Modified: 2019-07-13 23:59:12 -0700
 
 ---
 
-June 24, 2018
+June 24, 2018   
 Redwood Grange, Grants Pass
 
 **Prelims**

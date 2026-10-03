@@ -6,7 +6,7 @@ Modified: 2023-02-08 17:21:49 -0800
 
 ---
 
-January 29, 2023
+January 29, 2023   
 Linn County Fairgrounds, Albany
 
 ∆
@@ -115,7 +115,7 @@ Motion (Dave C / George H) to adjourn.
 
 **Next Meeting:**
 
-May 7, 9 AM
+May 7, 9 AM   
 Buckeroo Barn
 
 Roseburg

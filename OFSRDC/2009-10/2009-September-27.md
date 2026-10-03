@@ -159,5 +159,5 @@ Sun Nov 22, Beachcombers Cove, Port Orford
 
 
 
-Created with Microsoft Office OneNote 2007
+Created with Microsoft Office OneNote 2007   
 One place for all your notes and information

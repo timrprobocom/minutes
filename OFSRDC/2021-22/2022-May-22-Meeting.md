@@ -6,7 +6,7 @@ Modified: 2022-05-22 11:21:34 -0700
 
 ---
 
-May 22, 2022
+May 22, 2022   
 Zoom
 
 ∆
@@ -97,8 +97,8 @@ Zoom
 
 **Next Meeting:**
 
-July 17, 9 AM
-Blanchet Catholic School
+July 17, 9 AM   
+Blanchet Catholic School   
 Summer Festival
 
 

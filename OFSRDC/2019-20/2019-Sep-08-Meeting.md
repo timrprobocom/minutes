@@ -6,7 +6,7 @@ Modified: 2019-09-08 11:01:02 -0700
 
 ---
 
-September 8, 2019
+September 8, 2019   
 Maplewood Grange, Aurora
 
 ∆

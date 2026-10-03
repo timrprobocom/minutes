@@ -6,7 +6,7 @@ Modified: 2023-09-10 11:15:27 -0700
 
 ---
 
-September 10, 2023
+September 10, 2023   
 Emerald Square Dance Center, Springfield
 
 
@@ -108,6 +108,6 @@ Motion (Dave C / Brooke D) to adjourn.
 
 **Next Meeting:**
 
-January 28, 9 AM
-Linn County Fairgrounds
+January 28, 9 AM   
+Linn County Fairgrounds   
 Albany

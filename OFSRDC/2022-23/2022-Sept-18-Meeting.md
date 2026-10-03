@@ -6,7 +6,7 @@ Modified: 2022-09-18 12:19:05 -0700
 
 ---
 
-September 18, 2022
+September 18, 2022   
 Maplewood Grange, Aurora
 
 ∆
@@ -96,7 +96,7 @@ Motion (Gil S / Dave C) to adjourn.
 
 **Next Meeting:**
 
-January 29, 9 AM
+January 29, 9 AM   
 Linn County Fairgrounds
 
 Albany

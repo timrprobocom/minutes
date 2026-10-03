@@ -6,7 +6,7 @@ Modified: 2019-01-27 21:27:02 -0800
 
 ---
 
-January 27, 2019
+January 27, 2019   
 Holiday Inn Express, Albany
 
 ∆

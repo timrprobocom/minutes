@@ -6,7 +6,7 @@ Modified: 2020-09-20 10:47:19 -0700
 
 ---
 
-September 20, 2020
+September 20, 2020   
 Zoom meeting
 
 ∆

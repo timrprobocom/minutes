@@ -179,5 +179,5 @@ May 23, Josephine County Fairgrounds, Grants Pass, Off 2, Del 3, Pot 5, Dance 7
 
 
 
-Created with Microsoft Office OneNote 2007
+Created with Microsoft Office OneNote 2007   
 One place for all your notes and information

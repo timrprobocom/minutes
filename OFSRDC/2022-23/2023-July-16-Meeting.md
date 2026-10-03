@@ -6,7 +6,7 @@ Modified: 2023-07-16 11:05:16 -0700
 
 ---
 
-July 16, 2023
+July 16, 2023   
 Salem Square Dance Center, Salem
 
 ∆
@@ -95,7 +95,7 @@ Motion (George H / Lorrie M) to adjourn.
 
 **Next Meeting:**
 
-September 10, 9 AM
+September 10, 9 AM   
 Emerald Square Dance Center
 
 Springfield

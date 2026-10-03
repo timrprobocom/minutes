@@ -6,7 +6,7 @@ Modified: 2021-01-24 10:08:40 -0800
 
 ---
 
-January 24, 2021
+January 24, 2021   
 Zoom meeting
 
 ∆

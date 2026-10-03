@@ -6,7 +6,7 @@ Modified: 2021-05-19 09:22:37 -0700
 
 ---
 
-May 17, 2021
+May 17, 2021   
 Zoom meeting
 
 ∆

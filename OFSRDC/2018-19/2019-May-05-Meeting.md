@@ -6,7 +6,7 @@ Modified: 2019-05-05 12:02:35 -0700
 
 ---
 
-May 5, 2019
+May 5, 2019   
 Rogue Valley SDC, Medford
 
 **Prelims**

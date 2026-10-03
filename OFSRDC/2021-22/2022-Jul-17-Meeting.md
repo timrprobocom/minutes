@@ -6,7 +6,7 @@ Modified: 2022-07-17 10:27:48 -0700
 
 ---
 
-July 17, 2022
+July 17, 2022   
 Blanchet School
 
 ∆
@@ -88,7 +88,7 @@ Motion (Dave C / Gil S) to adjourn.
 
 **Next Meeting:**
 
-September 18, 9 AM
+September 18, 9 AM   
 Maplewood Grange
 
 Aurora

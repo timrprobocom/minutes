@@ -14,7 +14,7 @@ Template
 2014 Sept 21 OFSRDC
 
 
-September 21, 2014
+September 21, 2014   
 Salem Square Dance Center, Salem
 
 **Prelims**
@@ -86,8 +86,8 @@ Salem Square Dance Center, Salem
 
 
 
-Next Meeting:
+   Next Meeting:
 
-January 25, Mid-Winter
+   January 25, Mid-Winter
 
 

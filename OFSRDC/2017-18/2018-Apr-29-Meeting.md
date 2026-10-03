@@ -6,7 +6,7 @@ Modified: 2018-04-29 11:54:39 -0700
 
 ---
 
-April 29, 2018
+April 29, 2018   
 Beachcombers Hall, Port Orford
 
 **Prelims**
@@ -93,4 +93,4 @@ Beachcombers Hall, Port Orford
 
 **Next Meeting:**
 
-June 24, Grants Pass
+   June 24, Grants Pass

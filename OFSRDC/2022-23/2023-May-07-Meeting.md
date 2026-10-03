@@ -6,7 +6,7 @@ Modified: 2023-07-16 10:43:28 -0700
 
 ---
 
-May 7, 2023
+May 7, 2023   
 Buckaroo Barn, Roseburg
 
 ∆
@@ -104,7 +104,7 @@ Motion (Lori M / Cece G) to adjourn.
 
 **Next Meeting:**
 
-July 16, 9 AM
+July 16, 9 AM   
 Salem Square Dance Center
 
 Salem

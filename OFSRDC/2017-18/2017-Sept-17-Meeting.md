@@ -6,7 +6,7 @@ Modified: 2017-09-17 11:38:10 -0700
 
 ---
 
-September 17, 2017
+September 17, 2017   
 Kinton Grange, Beaverton
 
 **Prelims**
