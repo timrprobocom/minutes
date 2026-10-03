@@ -10,14 +10,14 @@ September 20, 2020
 Zoom meeting
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:05 AM
 -   Motion (Gary C / Tim K) to seat Lorri M as Secretary for this meeting
 -   All present except ; Ralph Lambert, Thomas Buchheit; Lois Muck for Gabe Smith ; Ashwill, Lobato
 -   Minutes: Motion (Zola J / Marilyn S) to accept minutes as corrected
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Roger & Linda Putzler are new Goodwilll Ambassadors
 -   1VP: -
@@ -32,13 +32,13 @@ Zoom meeting
     -   Insurance: 1723 dancers this year
 -   Past Pres:
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian:
 -   Education/Publicity:
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP/SESAC: Tim K: Roundalab says BMI has waived limitations on music over Zoom through the year
 -   Youth:-
@@ -50,7 +50,7 @@ Zoom meeting
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   21SF, still no bids, status on hold; IH will do meeting if MWF doesn't move
 -   [Motion (Joyce W / Cece G) to accept remote meeting procedures.]{.mark} MSPU.
@@ -61,7 +61,7 @@ Zoom meeting
 
 **Installation of Officers**
 
-**[New Business (10:05)]{.underline}**
+**New Business (10:05)**
 
 -   Motion (Karyn B / Dave C) to seat Lorri McIntosh as Secretary for 2020-21. MSPU
 -   Motion (Karyn B / George H) to approve 2020-21 budget. MSPU
@@ -71,16 +71,16 @@ Zoom meeting
 -   [Motion (Karyn B / Cece G) to adopt changes to Youth Activities Coordinator job description]{.mark}. Require 2 letters of recommendation. Must double-check club membership. MSPU
 -   Tim K talks about procedures to restart square dancing. In his opinion, we are a "gathering", not a "social gathering".
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   EE: State directory shows the old council officers
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Rikki Lobato
 -   Roger & Linda Putzler
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   I think teleconference works better
 -   For now, January meeting scheduled to be at the Convention Center

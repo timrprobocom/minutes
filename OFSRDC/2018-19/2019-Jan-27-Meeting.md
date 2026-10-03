@@ -10,13 +10,13 @@ January 27, 2019
 Holiday Inn Express, Albany
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:02 AM
 -   All present except ; Helms (late), Alexander; Stutzman (late), Joyce Welton for Parret; Worthington, Ashwill.
 -   Minutes: approved (Cece G / Patty C) MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Thanks
 -   1VP: Some people only want 2 clubs per page for readability. Some people want to make sure the 2VP is doing the directory. Back to 2VP next year.
@@ -37,13 +37,13 @@ Holiday Inn Express, Albany
     -   Treasurer: Marilyn Schmit (MWA)
     -   Membership: Harriet Livingstone (MWA), Denny Fullerton (IH)
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: Consent to sell old wireless system for $50
 -   Publicity/Education: Had about 14 at the education seminar, great discussion
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: Current.
 -   Youth:Granted 10 MWF ribbons. $100 for pizza party with 33 people.
@@ -55,13 +55,13 @@ Holiday Inn Express, Albany
 -   Background Check: Betty asks about treating everybody the same. I should publish the guidelines. Be clear.
 -   Delegate Meeting (∆):
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   ∆
 
 **RECESS (10:08)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   MOTION (Kathy R / Lane C) for Eager Beavers and Hoedowners to host SF2020 in Seaside August 21-23. Kay has distributed a minimalist packet. Budgeting for 300 people. No theme yet. One dance floor plus carpeted area if desired. Can rent a floor for $6,000, can purchase one for $2,700. Will probably do resale clothing. Haven't decided on a featured caller/cuer. MSPU.
 -   MOTION (Kathy R / Patty C) to establish a contractual relationship with SESAC based on Ralph Lambert's proposal. BMI is $160/year, ASCAP is $262/year. Roundalab now offers SESAC, Callerlab does not. They want $100 per day. To help the festival, we could go to 2-day instead of 3-day. Or maybe we pass through to ribbons. Or maybe the Federation pays part. MSP, (15-1).
@@ -69,7 +69,7 @@ Holiday Inn Express, Albany
 
 
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   MWA: IWW partnered with Salem Hospital for lessons. MWA doing Alzheimers Dance March 24.
 -   PAC: donating trailer to Silver City Squares. Doing a new dancer passport. Planning September meeting in Aurora at Maplewood Grange. Full hookup RV park available, Aurora Acres RV Resort.
@@ -78,11 +78,11 @@ Holiday Inn Express, Albany
 -   BMC: Muddy Frogs dancing to records.
 -   EE: Doing combined lessons again. Started with a community dance with food. 32 came to first lesson thanks to Facebook.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Bellcoff: First mention of 2020 69NSDC
 -   Cece G: The national caller conflict with Diamond Lake is being considered

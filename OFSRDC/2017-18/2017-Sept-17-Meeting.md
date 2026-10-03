@@ -9,7 +9,7 @@ Modified: 2017-09-17 11:38:10 -0700
 September 17, 2017
 Kinton Grange, Beaverton
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:05 AM
     -   We could have done with 2 tables down the sides
@@ -17,7 +17,7 @@ Kinton Grange, Beaverton
 -   All present except Patty C for Davis; Lambert, Buchheit, Helms; Murphy for Claudsen; Eddings, Reetz.
 -   Minutes:MOTION(Cece G/Zola J) to approve as corrected, MSPU.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Appointed [Dale and Kathy Worthington as Goodwill Ambassadors]{.mark}.
 -   1VP: Outstanding weekend, 90 at dance. Please report on your council dances
@@ -33,13 +33,13 @@ Kinton Grange, Beaverton
     -   Insurance: Paperwork distributed. Call is there are problems. Looking for someone to take over in September 2018.
 -   Past Pres:Randall Award ballots are out. I need then for OFN.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: New P&Ps distributed today. Need Constitution and By-Laws
 -   Publicity/Education:Facebook has 327. At SF17 we had seminar on what's right with square dancing. MWF18 will extend that.
 -   Historian: Getting Wood award and Chairman's Trophy cleaned up.
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: -
 -   Youth:-
@@ -50,7 +50,7 @@ Kinton Grange, Beaverton
 -   Delegate Meeting:(Jim Rogers) Discussed the items on the agenda.
     -   Jim made a pie at the Battle Rock weekend
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Ordered 425 directories, will have 9 left over, already inaccurate
 -   Background check, motion (Kathy R / Dave C) to remove from the table, MSPU. Motion is to accept the background report and recommendations. Passed 14-2.
@@ -64,7 +64,7 @@ Kinton Grange, Beaverton
 Installation Nonsense**
 
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Kathy intro speech
 -   2018-19 Budget: Motion (Lorri M / Frank S) to approve 2018-29 budget. MSPU.
@@ -72,7 +72,7 @@ Installation Nonsense**
 -   Appointing new background check committee Lorri M, Cece G, Karyn B, Kathy R, Janeinne A.
 -   Dale W has a bunch of beach-like games that could be used in festivals.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC (out of order): They are losing members because of rudeness. Folks moving up to higher level dancing and leaving beginners behind.
 -   EE: They're doing B51 plan with four clubs combined. Have video in local theaters. Danebo disbanded after 67 years. 2018 is 58th Mid-Winter. The recommendation to cease MWF came from current MWF chairman, not from the council. No decision has been made. Council meeting tomorrow evening. Notice will be sent to officers. If they give it up, it goes back to Federation.
@@ -82,11 +82,11 @@ Installation Nonsense**
 -   TVC: Move (Jim R / Frank S) to change "Caller Advisor" to "Caller Liaison". MSPU.
 -   UAC: Put a swamp cooler in the barn
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Remove Schmit, add Worthington
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Janienne had an Australian caller call over Skype
 -   Steve Murphy thanks to Kathy for coordination

@@ -10,14 +10,14 @@ July 12, 2020
 Teleconference, 605-313-5111 745228
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:02 AM
 -   All present except ; ; David Stutzman ; Kay Rogers;
     -   Lisa K claims she never got the meeting notice
 -   Minutes: Motion (Lorri M/Marilyn S) to accept minutes as corrected
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: -
 -   1VP: -
@@ -33,13 +33,13 @@ Teleconference, 605-313-5111 745228
     -   Insurance: -
 -   Past Pres:
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: Consider mailing the P&P flash drives if no live meeting
 -   Education/Publicity:
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: -
 -   Youth:
@@ -51,7 +51,7 @@ Teleconference, 605-313-5111 745228
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   PAC not bidding on 2021 SF
 -   September 20 meeting being moved on line
@@ -61,7 +61,7 @@ Teleconference, 605-313-5111 745228
 
 **RECESS (9:55)**
 
-**[New Business (10:05)]{.underline}**
+**New Business (10:05)**
 
 -   Have a watercolor from Lane for directory cover
     -   Will sell the matted original
@@ -71,16 +71,16 @@ Teleconference, 605-313-5111 745228
     -   What would that mean for us?
 -   Proposed 2020-21 Budget
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   RSQ: Attempting to dance end of August inside SDC. Diamond Lake canceled
 -   TVC: Hoedowners are rounding, with contact tracing
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Zola suggests September meeting in Albany outside
 -   Gary Clark: Ruth Canby passed away July 3

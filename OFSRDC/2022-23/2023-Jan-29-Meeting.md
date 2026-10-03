@@ -10,14 +10,14 @@ January 29, 2023
 Linn County Fairgrounds, Albany
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:03 AM
 -   Motion ( / ) to seat Cheri Cox to replace Gil Shoemaker as Membership, MSPU
 -   All present except ; ; Joyce Welton (COC); ;
 -   Minutes: Motion (George H / Marilyn S) to accept minutes as corrected, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Likes writing president's column in OFN. Many clubs reporting increase in membership.
 -   1VP:
@@ -35,13 +35,13 @@ Linn County Fairgrounds, Albany
 ```
 -   Past Pres:Randall award to Dave and Patty Cooper
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: Caller's seminar had about 12. Education seminar had 4 guests. FB page has 770.
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   Licensing: She will write some OFN articles with seminar content..
 -   Youth:Raising funds for the PNWTSF. They would like some financial help. They are taking 37 kids. Showcase was special.
@@ -54,7 +54,7 @@ Linn County Fairgrounds, Albany
 -   Background Check: How many in 2022? Think there were 5.
 -   Delegate Meeting: (not this time)
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Motion (Karyn B / Marilyn S) to revise the Licensing Coordinator job description. MSPU.
 -   Committee report on moving festival dates. Recommend no change. Motion (Dale B / Pat C) to accept committee's report. MSPU.
@@ -62,7 +62,7 @@ Linn County Fairgrounds, Albany
 
 **RECESS (9:58)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Nominations:
     -   1st VP (3yr): Pat Cox (SCC) {Mike Kious MWA, Jan Steel COC}
@@ -87,19 +87,19 @@ Linn County Fairgrounds, Albany
 
 **RECESS (11:38)**
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   Brooke D, Dave C, David S, Zola J says they didn't get reports
 -   EE: State meeting Sept 9 and 10.
 -   PAC: They collect bottles and cans. When they get to $100 they give to a club.
 -   UAC: Hosting the May meeting. Didn't read the P&Ps about hosting a meeting.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Melissa James: -
 -   Robert Lumsden: -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Service animal policy (Tim K), questions from multiple clubs. He wrote a policy. Should he have done so?
 -   Dancer conduct policy (Tim K), people behaved badly during the service animal thing. He wrote a policy. The policy needs to be cleaned up.

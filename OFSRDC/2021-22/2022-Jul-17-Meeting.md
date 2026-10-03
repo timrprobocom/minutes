@@ -10,13 +10,13 @@ July 17, 2022
 Blanchet School
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM
 -   All present except ; Brooke D, Karyn B; Dave S (BMC, Paul Ostrom for Joyce Welton (COC), Connie Seamens for Zola J (EE), Angie Sue (UAC); Putzler, James
 -   Minutes: Motion ( Gary C / Dave C ) to accept minutes as corrected, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: -
 -   1VP: -
@@ -31,13 +31,13 @@ Blanchet School
     -   Insurance: Now at 1388 dancers.
 -   Past Pres:Randall Award in progress
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: Handing out the health flyer. 693 members on Facebook page.
 -   Historian: Getting Chairman's Trophy and Wood Award straightened out. Extension for Wood Award has been lost.
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   Licensing: ∆
 -   Youth:∆
@@ -50,29 +50,29 @@ Blanchet School
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   [Motion (Betty C / Julia B) to amend By-Laws to change officer terms to 2-year terms. By-laws Article 7, P&P sections for officers. If 2VP moves into 1VP, how do we fill that hole? Gary thinks 1VP/Pres/Past should be two-year terms. Move to amend (Gary C / Gil S) to include 1VP/Pres/Past, MSPU. Motion, MSPU.]{.mark}
 -   [Motion (Connie S / Marilyn S) to amend By-Laws to allow election by acclamation when all races uncontested. By-laws Article 7. Dave C points out this eliminates write-ins. MSPU]{.mark}.
 
 **RECESS (9:45)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Motion (Marilyn S / Pat C) that Chairman's Award and Wood Award be updated. She will get an estimate of the cost. Motion (Dave C / Betty C) to amend not to exceed $500, MSP, 16-1. Motion, MSPU.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Good lessons, one new club.
 -   PAC: Hosting September 17-18 state meeting.
 -   RSQ: Elaine Funk received 50-year award for service from Roundalab.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Roger & Linda Putzler: ∆
 -   Melissa James: -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   USDA has changed scholarship, now will issue one for $2,500, and includes trade schools. There were no submissions this year.
 -   Tami H would like us not to use our cell phones. Who was violating?

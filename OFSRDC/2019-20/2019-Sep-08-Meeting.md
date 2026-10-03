@@ -10,14 +10,14 @@ September 8, 2019
 Maplewood Grange, Aurora
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM
 -   All present except Cooper; Lambert; ; Stutzman, Cox; Rogers; Ashwill
 -   Motion (Cece G / Gabe S) to seat Denny Fullerton as Membership, MSPU
 -   Minutes: Motion (Betty C / Cece G) to approve, MSPU.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Rikki Lobato and Rob Keene as new Goodwill Ambassadors
 -   1VP:
@@ -33,13 +33,13 @@ Maplewood Grange, Aurora
     -   Insurance: New system working better. Don't have new rates yet. She is encouraging the Washington clubs to enroll in USDA as well. That's quite a change of policy and seems silly. They want the festivals to incorporate. Shouldn't be necessary; covered by sponsoring organization.
 -   Past Pres:Have 5 Randall Award nominations. Cece & Sarge Glidewell, Tami Helms & Tim Keck, Kaynor Heineck, Wayne Weaver, Chuck Simpkins. Grant committee request for Misha Case, $300. Committee recommends. Motion (Kathy R / Tim H) to approve grant, MSPU.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: ∆
 -   Education/Publicity: MWF Education will be on social media
 -   Historian: Make sure to put Wood and Chairman's clubs in the minutes
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: ∆
 -   Youth:30 youth dancers at state fair
@@ -51,7 +51,7 @@ Maplewood Grange, Aurora
 -   Background Check: All new officers checked
 -   Delegate Meeting: 7/10 councils present..
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   ∆
 
@@ -59,7 +59,7 @@ Maplewood Grange, Aurora
 
 **INSTALLATION OF OFFICERS (10:03)**
 
-**[New Business 10:12]{.underline}**
+**New Business 10:12**
 
 -   Thanks to Lorri and introductory speech
     -   Clubs consider mentoring youth and new dancers
@@ -67,7 +67,7 @@ Maplewood Grange, Aurora
 -   Presentation on 2021 Summer Festival. Sandy Eddings and Connie Seamans. July 1-2-3, Thu/Fri/Sat. Ray Brendzy and Hunter Keller; Christine & Bruce Nelson. No sponsoring organization; no one wants to do the work. Yes, that's the point. [What if they incorporated separately?]{.mark} They would have to be a member to be covered by insurance. PAC might be interested. Deferred until Mid-Winter. P&Ps say Council or Councils.
 -   Motion (Marilyn S / Zola J) to retire position of Microphone Man. MSPU
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Ron Bliven passed. Do I have an obituary?
 -   IH: Cece now the only caller in IH. Club caller for KC Squares
@@ -76,11 +76,11 @@ Maplewood Grange, Aurora
 -   SCC: Battle Rock Weekend had 31 RVs. $3k raised during the weekend.
 -   TVC: Tri Squares now 2&4 Friday
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Worthingtons: Final report. USAWest 2021 in San Diego.
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Ray Jones selected for Veterans Honor Flight
 -   Roberta email robertasquaredance@gmail.com

@@ -9,14 +9,14 @@ Modified: 2019-01-27 09:18:28 -0800
 September 23, 2018
 Salem Square Dance Center
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:04 AM
 -   All present except Houston; Helms
 -   Minutes: approved as corrected by unanimous consent
 -   Seating Gary Clark as 2VP, MOTION (Lorri M / Tim H) to approve, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Two more scholarships. Ashwills are new ambassadors.
 -   1VP: -
@@ -32,13 +32,13 @@ Salem Square Dance Center
     -   Insurance: New packets are out, transitioning to Marilyn
 -   Past Pres:Have total of four nominations for Randall Award, ballots in bucket.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Publicity/Education: Have ribbons for SF19. Education seminar tentatively "Care and feeding of volunteers".
 -   Historian: Newspaper article about Elaine Funk
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: Up to date. Callerlab and SESAC have reached an impasse. He may contact Roundalab executive secretary for help for the Federation. Ends up being about $125 a day.
 -   Youth:Had 35 at the State Fair youth session. PNTSDF in Oregon again. May 3-4, 2019.
@@ -50,7 +50,7 @@ Salem Square Dance Center
 -   Background Check: -
 -   Delegate Meeting (Julia): Thanks to Julia for running the meeting. Talked about the motions, talked about insurance packets.
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   ∆
 
@@ -58,7 +58,7 @@ Salem Square Dance Center
 
 **Installation nonsense**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   MOTION (Cece G / Tim H) to move the May 2020 State Meeting in Klamath Falls to April 26. Club birthday weekend. MSPU.
 -   MOTION (Kathy R / Lane C) to have Hoedowners and Eager Beavers to host Summer Festival 2020 in Seaside, July 17-19, 2020. Kay speaks in favor. Budgeting for 400. Steinka and Duycks in charge. Tami concerned about round dance hall. MOTION (Kathy R / Patty C) to table, MSP. She did not prepare a packet. Of course.
@@ -67,7 +67,7 @@ Salem Square Dance Center
 -   MOTION (Kathy R / Lane C) to publish 300 Special Dance & Festival flyer. Costs 57c per copy in bulk. Planning 300 copies. Neta thinks it is a step backwards back to paper. Janienne loves the TVC special dance flyer. MSPU.
 -   MOTION (Kathy R / Tim H) to approve grant committee recommendation for $500 to Cece Glidewell. MSP, 14-1.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   MWA: What a great microphone voice. LBCC doing a square dance. Salem hospital also doing classes.
 -   PAC: Getting rid of one trailer. Agreed to transfer to Silver City Squares as-is at no cost. Tri-Council dance Sept 29, OGCC, Steven Cole, Ken Pratt. Country Cut-ups now have outside dance floor.
@@ -75,11 +75,11 @@ Salem Square Dance Center
 -   BMC: Stutzman would like bar with BLUE MOUNTAINS COUNCIL. Bill & Neva Reid retired. There are now no callers or cuers in Eastern Oregon.
 -   COC: They run concessions for Sisters Rodeo, and they got $6,000 this year to split amongst the clubs.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Marilyn printed 415 directories, all paid for
 

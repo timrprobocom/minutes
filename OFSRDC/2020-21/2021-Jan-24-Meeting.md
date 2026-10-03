@@ -10,13 +10,13 @@ January 24, 2021
 Zoom meeting
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:01 AM, 21 present
 -   All present except ; Ralph Lambert, Thomas Buchheit; Gabriel Smith; Lisa Kious; Roger Putzler
 -   Minutes: Motion ( / ) to accept minutes as corrected
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres:
 -   1VP: -
@@ -30,13 +30,13 @@ Zoom meeting
     -   Insurance: All entered, head count 1352 plus 205 in WA
 -   Past Pres:2021 Randall Award Gary and Norma Sohn
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: P&P online, 135 pages
 -   Education/Publicity: -
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP/SESAC: Ralph has BMI and ASCAP bills, waiting until after today. Both may be reduced
 -   Youth:Revised scholarship app published. USDA due Feb 1, OFSRDC due May 1. PNWTSF has been canceled 2021.
@@ -48,13 +48,13 @@ Zoom meeting
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   
 
 **RECESS (9:30) skipped**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Nominations 2021-22
     -   1st VP: Tim Keck (PAC)
@@ -65,19 +65,19 @@ Zoom meeting
 -   Motion (Tim Keck / George H) to put state directory online. We don't make money on the printed directory. We can leave out info if people are squishy. Passed, unanimous consent.
 -   Help with class advertising. They're considering a statewide caller's association. Can the state pay for some kind of generic advertising campaign? Social media? Have a new caller problem as well as new dancer problem.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Probably no live meeting in May. How to handle non-vaxxers? This is going to be extremely ugly.
 -   PAC: Hattrick was ill, but doing better
 -   SCC: Last weekend in September will try Rainbow, still planning Battle Rock
 -   UAC: Buckeroo is trying dancing again, doubtful that it's legal
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Rikki Lobato
 -   Roger & Linda Putzler
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Key Bank CDs went from $40/mo to $1.50/mo
 -   Worthington: USDA talked about SSD. There is some controversy. USDA looking at 3 scholarships this year, $1,000, $750, $500. Get your seniors in line.

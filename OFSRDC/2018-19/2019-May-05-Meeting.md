@@ -9,14 +9,14 @@ Modified: 2019-05-05 12:02:35 -0700
 May 5, 2019
 Rogue Valley SDC, Medford
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM; 9 of 17 voting members present makes a quorum
 -   Appointed Ray J, Lois M, Cheryl H as tellers
 -   All present except Buchheit, Cooper; Lambert; Helms, Alexander; Stutzman, Parret, Buchheit, Chipps, Cox; Reetz, Gibbens.
 -   Minutes: approved (Cece G /Gary C) MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: ∆
 -   1VP: ∆
@@ -35,13 +35,13 @@ Rogue Valley SDC, Medford
         -   Motion (Kathy R / Tim H) $300 grant Ricki Lobato for cuer training at Cle Elum. MSPU.
         -   Motion (Kathy R / Lane C) $500 grant to Melissa James for caller training, Iowa Sq D Academy. MSPU.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: Reminder of constitutional amendment
 -   Publicity/Education: Pioneer Courthouse Square birthday success. Dale W's special dance booklet will be distributed today. Total cost about $172. Tim will put the booklet in the OFN and Federation web site. Summer Festival educational seminar will be on creating and maintaining a club.
 -   Historian: - 1651 dancers in Oregon. 255 in Washington.
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: Now have license agreement from SESAC. Forms updated.
 -   Youth:Program printing $124.14. Motion (Kathy R / Tim H) $124.14 for PNTSDF program. MSPU.
@@ -53,7 +53,7 @@ Rogue Valley SDC, Medford
 -   Background Check:
 -   Delegate Meeting (Roberta C): Agreed to line dancing, discussed RSQ benefit, discussed September meeting date.
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Re-open adding line dance clubs to Article 3 of Constitution, MSPU.
 -   Elections (50 clubs responded):
@@ -66,11 +66,11 @@ Rogue Valley SDC, Medford
 
 **RECESS (10:11)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   ∆
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   EE: Combined classes graduated 12. Benefit dance for Camp Alma Mar 30. Raised $2,000.
 -   MWA: Raised $665 for Alzheimers Benefit. Creating an MWA passport. 137 youth at PNTSDF.
@@ -79,11 +79,11 @@ Rogue Valley SDC, Medford
 -   SCC: GoFundMe account for Beachcomber's roof
 -   TVC (Josie Rosenbury):Judy Schnase got recognition award. Bob Allen another ambassador bar.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   -
 

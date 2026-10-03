@@ -9,14 +9,14 @@ Modified: 2018-04-29 11:54:39 -0700
 April 29, 2018
 Beachcombers Hall, Port Orford
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:03 AM
 -   All present except Clem; ; Lambert, Helms; Worthington
 -   Tellers: Sally Stutzman, Phil Claudsen, Sarge Glidewell
 -   Minutes: Ralph replied in detail to an ASCAP question, answer should be there.MOTION(Larry R / Cece G) to approve as corrected, MSPU.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Lane could not come.
 -   1VP: -
@@ -31,13 +31,13 @@ Beachcombers Hall, Port Orford
     -   Insurance: -
 -   Past Pres:More Randall nominations
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Publicity/Education: Need details about Federation meetings
 -   Historian: Found some ratty old banners of very old clubs
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: ∆
 -   Youth:
@@ -48,7 +48,7 @@ Beachcombers Hall, Port Orford
 -   State Fair:
 -   Delegate Meeting: Discussed SF19 proposal, agreed. Cece points out many existing festivals. She suggests we don't worry about having an SF if there is no bid.
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Background check committee. Moving
 -   Election results:
@@ -62,7 +62,7 @@ Beachcombers Hall, Port Orford
 
 **RECESS (9:58)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   2019 Summer Festival: UAC says no. MOTION (Larry R / Marilyn S) to have Federation board do SF19. Proposed dates July 12-14 are Marion County Fair. Problem w/ hotels. Kay reserved Seaside Convention Center July 19-21. July 13-14 is Washington Leadership Seminar. Diamond Lake committee does construction 19-21. (Why does Diamond Lake get to reserve two weekends?) Dave Cooper suggests changing to a fall festival. School is probably not an issue, except that the schools are not available. 10 to 8 prefer July 3rd weekend over July 1st weekend. MOTION to amend (Janet B / Larry R) to say any of 1st three weekends of July. MSPU. Motion as amended, MSP, x to 1.
 -   MOTION (Marilyn S / Lorri M) to grant $200 to COC for half of lawn signs, MSPU
@@ -72,18 +72,18 @@ Beachcombers Hall, Port Orford
 -   $1,534 in total grants. We need a better procedure for this; we don't need their letters. Should grant committee things be voted on as a block? Presented as committee report? Committee recommendations do not need a second, but do need a vote.
 -   2020 Mid-Winter provided budget in the file, Aaron and Linda Gibbens chairing. "Diamonds of Dance". Deborah Carroll-Jones. They want their $6,000 loan at SF. Does that need a vote? They need to apply.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Terry Hoehn has moved away; need new calendar and editor. They will ask for reimbursement after trailer repair.
 -   MWA: Valley River Dancers moving to TVC eventually.
 -   PAC: Tri-council dance this fall hosted by PAC. TBA. There is a second big teddy bear somewhere in Oregon. Silver Stars have dissolved.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Cooper: Rocky Yellow Rock has been all around the state. Next at PNWTSF.
 -   Worthington: 50th wedding anniversary on May 17th
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Sally Stutzman says Star Promenaders were the only Oregonians at their Spring Fling. Otherwise all from Idaho. Not surprising; closer by far.
 

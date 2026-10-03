@@ -21,7 +21,7 @@ Garibaldi City Hall
 
 
 
-**[Prelims]{.underline}**
+**Prelims**
 
 2.  Call to order 9:05.
 3.  All present except for Reid, R Lambert; Stutzman; Churchill.
@@ -31,7 +31,7 @@ Garibaldi City Hall
 
 
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 7.  Pres: Requests at least 2 nominees for each office. HORSES dance in Bend, Pine Forest Grange, April 11, Kalmbach/Cooper.
 8.  1VP: Councils are supposed to send minutes to Pres and 1VP. **MOTION** (Ashwill /Fairburn) to reimburse $670 to Sunset Empire for advertising for lessons from Grant Fund. They shoved flyers in Seaside paper. MSPU.
@@ -68,7 +68,7 @@ Garibaldi City Hall
 
 
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 15. Publicity: National Square Dance Directory now online only. Club/council entries free. [http://www.nsddirectory.com](http://www.nsddirectory.com/). **MOTION** (Bard/Fairburn) to pay $40 lifetime fee for advertising festivals. (It does not allow all clubs to ACCESS the information.) MSPU. River City Dancers would like financial help to support the Riders. Will have request at next meeting. No Tri-Council Dance because of Mid-Winter? They couldn't find a single date? Carson Campout ending after 2010.
 16. Financial: -
@@ -77,7 +77,7 @@ Garibaldi City Hall
 
 
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 19. BMI/ASCAP: -
 20. Youth: Working with PAC to raise money for scholarship. PAC has raised ~$200. Want to expand scholarship qualifications to encourage more applications; none this year. Want to include college freshmen & sophomores and allow repeats. Deferred until Ashwill.
@@ -97,7 +97,7 @@ Garibaldi City Hall
 
 
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 29. TVC: Portland State FOCUS group at Aloha Grange had 200 international students. They paid hall and caller.
 30. UAC: Timber 8s moving from 13F to 24S.
@@ -108,7 +108,7 @@ Garibaldi City Hall
 
 
 
-**[Old Business]{.underline}**
+**Old Business**
 
 1.  CPA Report deferred.
 2.  P&P Change Committee final report. Back in Floyd's hands. Did not intend to change or delete any policies. Have scaled back the changes to synopsis format, plus updating job descriptions to reflect reality. Will hand off to whatever committee Lee forms. There are some conflicts in appointed officers and standing committees in various places. Suggest appointing one person (why?) to retype and present bit by bit. Need to get the people IN the jobs to write up their jobs. Everyone should know what is being voted on. Doing it all at once is too much to digest. Not ready for vote yet.
@@ -116,29 +116,29 @@ Garibaldi City Hall
 
 
 
-**[Break]{.underline}**
+**Break**
 
-**[]{.underline}**
+****
 
-**[Installation of New Officers]{.underline}**
+**Installation of New Officers**
 
-**[]{.underline}**
+****
 
-**[New Business]{.underline}**
+**New Business**
 
 1.  **MOTION** (Wolf/ -) to abolish Mid-Winter Emergency Fund. VIII-10 in P&Ps. Not needed. Died for lack of a second.
 2.  **MOTION** (Davis/Sohn) to adopt new Membership Chairman job description in P&Ps. Section V-19. MSPU.
 3.  **MOTION** (Bard/ J Guches) to accept budget for 2009-2010. MSPU.
 
-**[]{.underline}**
+****
 
-**[Active Goodwill Ambassadors]{.underline}**
+**Active Goodwill Ambassadors**
 
 4.  Bramhall: Cooper left Sundown Round Dance Club. Why? It was his baby.
 
 
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 5.  Jerome Fulton, Happy Hoppers, talks about Providence LifeBalance card. They do the marketing, we offer a discount. Had been Silver Sneakers through Medicare Advantage offering discounted health club memberships. Kaiser calls it Active & Healthy. Hoppers offered 20% discount off of set of 8 lessons. He suggests another Federation web site dedicated to attracting non-dancers, connected to club web sites or offering web services to clubs.
 6.  S Davis says John has not been offered respect. Wonder what she means?

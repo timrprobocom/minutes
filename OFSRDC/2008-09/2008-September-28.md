@@ -27,14 +27,14 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Prelims]{.underline}**
+**Prelims**
 
 2.  All present except: Reetz, Reese, Snodgrass, Weber/Beane, Walter for Stutzman, Lori Stevens for Griffth, Kleve, Bramhall.
 3.  Dennis Marsh says old item B was a suggestion not a motion. No further followup.
 
 
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 4.  Pres: Thanks. Murphys and Schmits both visited every council. Goodwill Ambassadors: Larry & Barbara Schaumburg.
 5.  1VP: Deferred until new business.
@@ -60,7 +60,7 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Appointed Officer Reports]{.underline}**
+**Appointed Officer Reports**
 
 12. Parl: Reimbursement page should include Goodwill Ambassadors.
 13. Publicity/Reporter: -
@@ -70,7 +70,7 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Committee Reports]{.underline}**
+**Committee Reports**
 
 17. BMI/ASCAP: Current.
 18. Youth: Review of USAWest. Cloverleafs asked for assistance in buying T-shirts. We are issuing them $200 to help (total cost $375). March 22 Ca$h for Kids. Applause for Kathy.
@@ -86,7 +86,7 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Old Business]{.underline}**
+**Old Business**
 
 28. **MOTION** (J Guches/B Rooper) to allocate $500 to retain CPA. Should we increase the amount? He's willing to donate 2 hours, B Reid thinks that plus $500 would be enough to get to the next step. Neta points out that it is frustrating to talk about things over and over. Will this be an every year thing? No. MSPU.
 29. By-laws amendment vote was 49-1 in favor. Amendment passes.
@@ -102,7 +102,7 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[New Business]{.underline}**
+**New Business**
 
 31. Introductory report. He wants to increase support of clubs, and give clubs the opportunity for feedback. Hopes to have a video for net distribution.
 32. Jim Rogers is now the Eastern Oregon delegate? Are they a member of an EOC clubs?
@@ -116,7 +116,7 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Club Delegates]{.underline}**
+**Club Delegates**
 
 40. PAC: Thanks to Swap & Swing. Wy'east Whirlers disbanding Jan 2009.
 41. Do we need a note from each and every club?
@@ -130,14 +130,14 @@ Check Murphy email is <shadow32@charter.net>.
 
 
 
-**[Goodwill Ambassadors]{.underline}**
+**Goodwill Ambassadors**
 
 49. Ashwill: 61nsdc.com and nsdcnec.com.
 50. Rooper: there is a 5 mile hike across The Dalles Dam and back.
 
 
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 51. Anyone can order the 61NSDC polo shirts from the web site. Ribbon is almost designed. Confirmation letters will come after ribbon. Went to Wichita with 330 now have about 550.
 52. Paul Cap showed a demo video that he ordered. Maybe we could make one, or at least set up a permanent promotional committee?

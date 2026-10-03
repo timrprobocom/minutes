@@ -9,13 +9,13 @@ Modified: 2019-07-13 23:59:12 -0700
 June 24, 2018
 Redwood Grange, Grants Pass
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM
 -   All present except several.; Lambert, Helms; Rogers, Stutzman, Bellcoff; Worthington.
 -   Minutes: Corrected some spellings. Motion (Cece/Kippen) to accept as corrected, MSPU.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Wood Award to Buckeroo.
 -   1VP: -
@@ -31,13 +31,13 @@ Redwood Grange, Grants Pass
     -   Insurance: Looking for someone to take over insurance.
 -   Past Pres:Please get in Randall Award nominations in
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Publicity/Education: We will have a training session in September. Need ideas for education seminar.
 -   Historian: Has more minutes from the 1990s for me. Have banner from Summer Fest 1975.
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: ∆
 -   Youth:Three apps for scholarships. Silver City did great at PNWTSF. She will be coordinator in 2019 again. August 25 youth dancing at State Fair. Teen festival programs cost $720.30. Requested that it be paid. Motion (Lorri M / Tim H) to reimburse $720.30 for PNWTSF. MSPU.
@@ -48,29 +48,29 @@ Redwood Grange, Grants Pass
 -   State Fair: Sat youth, Mon squares, Tues rounds, Thurs squares.
 -   Delegate Meeting: There was none
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Background check committee dissolving
 -   MOTION (Cece G / Frank S) to approve $6,000 loan to 2020 MWF. MSPU. I should check on this procedure.
 
 **RECESS (9:45)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   MOTION (Lorri M / Tim H) to purchase laptop and software for Federation Treasurer, NTE $900. Lane has been using his own personal laptop, Office, and QuickBooks but it needs to be separate. QB is now subscription-based; may need to switch to something else. (What else is there? MS Money?) MSPU.
 -   Have proposed Federation budget for 2018-19. We should send this out.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   PAC: Keith Miles new president, [Betty Chips new delegate]{.mark}. Plan to sell one of the trailers (old B&B trailer).
 -   TVC: Now allowing clubs to co-host 5th Saturdays. Doing multi-club mystery trips.
 -   BMC: Washington SF had 660 in Kennewick
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Still need OFNAC. Need directory numbers by July 10
 -   KC intends to win Battle Rock pie contest

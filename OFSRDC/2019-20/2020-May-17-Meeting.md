@@ -10,13 +10,13 @@ May 17, 2020
 Teleconference, 605-313-5111 745228
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:07 AM
 -   All present except ; ; ; COC, SCC;
 -   Minutes:
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Want committee to establish policy for future remote meetings. Gary Clark, Tim Keck chairing. More discussion of 501(c)(3) status. There are downsides. Would be a pain in the rear.
 -   1VP:
@@ -32,13 +32,13 @@ Teleconference, 605-313-5111 745228
     -   Insurance: -
 -   Past Pres:No Randall nominations yet
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: There are Facebook sources of 1 couple or 2 couple dancing
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: -
 -   Youth:Had 5 applications, chose 2. Gary suggests committee to expand scholarships.
@@ -50,7 +50,7 @@ Teleconference, 605-313-5111 745228
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   2021 SF up for bid
 -   Election results, counted by Roberta, Lorri, Gabe, Grant. 45/55 ballots returned.
@@ -63,22 +63,22 @@ Teleconference, 605-313-5111 745228
 
 **RECESS (10:04)**
 
-**[New Business (10:05)]{.underline}**
+**New Business (10:05)**
 
 -   Gary wants committee to revamp scholarship wording to allow more flexibility. Thomas will take the lead. Kathy, Gary C, Lorri M volunteer
 -   Was there an audit after 18-19? Yes
 -   Roberta asks if we can have more scholarship money right now. No, scholarship work is done for this year under existing policy.
 -   Lisa K asks about next meeting. Suggest moving to July, 2nd or 3rd weekend. Motion (Gary C / Lorri M) to have telemeeting on July 12. Pass by unanimous consent.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Round-Up canceled
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Zola J - rumors from snowbirds that square dancing may never recover. Don't be negative.
 -   Marilyn S: Lee has new arm crutch, Barbi prepping for surgery

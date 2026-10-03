@@ -21,7 +21,7 @@ Holiday Inn Express, Albany
 
 
 
-**[Prelims]{.underline}**
+**Prelims**
 
 2.  Call to order 9:30.
 3.  All present except for D Smith, B Schaumburg, L Seeley; W Brunelle.
@@ -30,7 +30,7 @@ Holiday Inn Express, Albany
 
 
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 4.  Pres: Congrats Al Wolf, Randall Award Winner. Special Award from 61NSDC Publicity for Genevieve.
 5.  1VP: P&P update report. Vivian added to committee. All seats to submit changes to job descriptions by April 1. Propose to dispose committee by Sept meeting. Need areas to consider 2012 Summer Festival.
@@ -75,7 +75,7 @@ Membership: Sylvia Davis
 
 
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 11. Publicity: 40-50 at Tri-Council Christmas meeting. PAC doing Memorial Day Weekend dance May 28-31, Johnny Preston, Milwaukie Comm Ctr. Might do Portland Junior Parade.
 12. Financial: Three areas.
@@ -93,7 +93,7 @@ Audit of 2008-09: Loss of $3,955 for the year, OFN 82% of that. Receipts under b
 
 
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 BMI/ASCAP: Have annual BMI billing, same as 2009. ASCAP current.
 
@@ -113,7 +113,7 @@ Delegate Meeting Report: Three topics: River City Riders, Membership, Delegate g
 
 
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 CPA Report. The IRS is paying closer attention to TE orgs. Imperative that we pursue documentation, including tax exempt status. Suggestions. (1) Make class students "associate members". (2) In by-laws, allow reciprocal agreements with other Federated clubs so their income is member income. (3) Make sure we follow all P&Ps. (4) Make sure we track non-member and unrelated income. He will create some wording. We need concrete steps. IRS has electronic newsletter for TE orgs. "As soon as you pay $5 you are an associate member." That kind of wording. B Ashwill points out that filing for tax exemption costs big bucks. Why do we require that? (Because clubs would have to pay taxes on their income.) Murphy claims any change in By-Laws in a TE org requires re-filing. How do we resolve these opinions in a way everyone is going to agree with? Do all clubs need to be tax exempt for Federation to remain tax exempt? Does the Federation need to be tax exempt?
 
@@ -123,11 +123,11 @@ CPA Report. The IRS is paying closer attention to TE orgs. Imperative that we pu
 
 
 
-**[Break]{.underline}**
+**Break**
 
-**[]{.underline}**
+****
 
-**[New Business]{.underline}**
+**New Business**
 
 1.  **MOTION** (F Bard/J Guches) to remove history from P&Ps. Randall, Benefit dance, Summer Festival, old Federation meetings. MSPU.
 
@@ -142,7 +142,7 @@ CPA Report. The IRS is paying closer attention to TE orgs. Imperative that we pu
 
 
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 7.  EE: Glasses were engraved by Sqdini.
 8.  MWA: 114 students in fall classes. Jim Steele home now doing a bit better.
@@ -155,14 +155,14 @@ CPA Report. The IRS is paying closer attention to TE orgs. Imperative that we pu
 
 
 
-**[Active Goodwill Ambassadors]{.underline}**
+**Active Goodwill Ambassadors**
 
 15. Bramhall -- Benefit Dance April 11 in COC, caller TBA (Kalmbach has to back out).
 16. Rooper -- Annadale had 80th birthday party. George Griffith leased out his farm after 62 years.
 
 
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 17. Louisville just went over 4,026; Detroit 1,012; Spokane 1,062.
 18. Haskins: buildings > 50,000 sq ft now need a defibrillator. $2000. He wrote a grant and got one free from Providence.

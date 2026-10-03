@@ -10,13 +10,13 @@ January 25, 2020
 Holiday Inn Express, Albany
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM
 -   All present except ; ; Sally Duyck for Kay ; Deb Mandeville for TVC; Ashwill, Lobato
 -   Minutes: Motion (Marilyn S / Gary C) to approve, MSPU. Please number the pages of the minutes, names in bold.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Guests Don & Cheryl Pruitt, 69NSDC. Just under 2,000. Aiming for 2,500-3,000.
 -   1VP: Thanks for past MWF chairmen being involved.
@@ -45,13 +45,13 @@ Holiday Inn Express, Albany
         -   Dan Houghton, Star Promenaders, wants $500 to attend caller school at Circle 8. Motion (Lorri M / Pat C) to approve grant request. MSPU.
         -   Janet Geiger, RSQ, wants $500 to attend caller school at Circle 8. Motion (Lorri M / Pat C) to approve request. MSPU.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: Can we do P&P on thumb drive? Remember there are procedures for SF.
 -   Education/Publicity: 509 members on FB page. 14 people at education seminar. Send the material to the Federation mailing list.
 -   Historian: Getting Chairman's Trophy and Wood Award up to date.
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: All current with all 3 agencies. MWF already paid for this festival. There is no wording in any of the licensing contracts that allows piggybacking. Whoever plays the music has to be licensed. Each performer must be licensed. What about amateur night? A licensed person needs to run the music. Some callers claim that the arrangement changes the issue. You can get an individual SESAC separately. Line dancing has exactly the same issue. Can a club get a license? Should a contract ask for a paper copy? Certainly insist on having the license. For guests, maybe ask for evidence.
 -   Youth:Approved 12 MWF ribbons. There were about 44 youth pre-registered. (3%) Remember the college scholarship. USDA scholarship deadline Feb 1.
@@ -63,18 +63,18 @@ Holiday Inn Express, Albany
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Presentation on 2021 Summer Festival. Sandy Eddings and Connie Seamans. July 1-2-3, Thu/Fri/Sat, Linn County Fairgrounds, just the Santiam Building. ??? (Now saying all local callers.) Ray Brendzy and Hunter Keller; Christine & Bruce Nelson. ??? PAC willing to sponsor. She says $19,000 in income; expenses are $5,000 caller, $7,000 for facility. Motion (Cece G / Betty C) to accept the proposal. PAC may need reconsider. Motion (Tim K / Pat C) to postpone until April. MSPU.
 
 **RECESS (10:45)**
 
-**[New Business (11:06)]{.underline}**
+**New Business (11:06)**
 
 -   Tim K asks about teleconferencing. ORDTA is using a Bluetooth speaker/microphone combination. I should ask him about it. ORDTA using a free conferencing service. How do you deal with voting? Votes would all have to be roll call, like 69NSDC. I think that's a very interesting idea. [Follow up with Tim K.]{.mark}
 -   Tim K thinks we should consider term limits. With the few volunteers, that would be hard. Lorri suggests making secretary a 2 year term. Membership is another one that takes time to get up to speed. I could support that. I wonder what prompted this?
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Two clubs merge to High Desert Dancers. Sagebrush Shufflers struggling.
 -   EE: Doing 4-club combined lessons again. Their council does 2-year terms.
@@ -83,11 +83,11 @@ Holiday Inn Express, Albany
 -   PAC: Trying club co-hosting of 5 Fri dances
 -   TVC: Sept 19 state meeting at Kinton Grange
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Lobato: She's been busy
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Betty C: Possible new club. Is there a minimum size? No, not for Federation. Some councils do have a limit.
 -   Lorri issues tearful thanks

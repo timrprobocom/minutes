@@ -21,7 +21,7 @@ Beachcomber Hall, Port Orford
 
 
 
-**[Prelims]{.underline}**
+**Prelims**
 
 2.  Call to order 8:59.
 3.  All present except for ; Reid, Lambert, Smith, Schaumburg, Seeley, Fairburn ; Stutzman, Brunelle.
@@ -29,7 +29,7 @@ Beachcomber Hall, Port Orford
 
 
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 5.  Pres: Review of accusations. Appoint P&P committee w/power, Bard, Roberts, Jones, Stutzman. They will find SMEs for the modifications.
 6.  1VP: Have rec'd $1,504 for directories $1,440 expenses. Discussed timing of membership forms. Back in May is too early. Want to reinstate Leadership Seminar for 2011-12.
@@ -60,7 +60,7 @@ Past Pres: Has all 13 Randall award ballots back.
 
 
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 11. Publicity: PAC raised $245 for River City Riders. Tri-Council was Oct 10?
 
@@ -86,24 +86,24 @@ State Fair: Will contact in Feb 2010. Four day spots available.
 
 
 
-**[Old Business]{.underline}**
+**Old Business**
 
 1.  CPA report not ready yet, need Bill Reid here.
 
 
 
-**[Break]{.underline}**
+**Break**
 
-**[]{.underline}**
+****
 
-**[New Business]{.underline}**
+**New Business**
 
 1.  **MOTION** (Schmit/Sohn) from ORDTA to allow Internet downloads for OROMs instead of just 45s and CDs. Getting very difficult to find classics on 45s and CDs. WA allows this. Cooper points out that not all cuers can handle downloads. Kious thinks number of vinyl cuers is very small. MPSU.
 2.  **MOTION** (Wolf/Reetz) to provide $5,800 financial assistance to the River City Dancers. Travelling 2,000 miles to Louisville. Driving needs big RV. Shipping quoted as $7,000-$8,000. Have a bid for a new trailer, lockable, to host costumes and act as dressing and staging room. They have 6 exhibition requests right now. $5,640. Les Seeley would be responsible. Will be stored at Hunts with PAC trailer. How will it be insured? Could have logo on the side. Would revert to Federation ownership if RCD expired. Good questions from Guches. Could it be used to send Federation stuff to NSDCs? Maybe. Diagram of how trailer would be set up? S Eddings in favor. B Ashwill wonders if this will help clubs at home. Also raises perceived value issue. L Kious asks if George & Nancy Clark's Promenade Shop trailer be available? D Cooper cannot see what the Federation gains. K Rogers points out questions of maintenance. If RCD has it, they should have it. Consider just giving the money without owning the trailer. **MOTION** (Marsh/Guches) to table, passed. Did not say Mid-Winter because there is no delegate meeting. Bard suggests a 30 minute delegate meeting at Mid-Winter. Some time Saturday afternoon 12:30 to 3. Haskins says trailer will not be used for storage. Remember that deferring until May only leaves a month until NSDC. J Guches wonders about timing of council meetings. T Haskins promises information by next week.
 
 
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 3.  SEC: 83% of Seaside Sashay pre-registered.
 4.  TVC: EB plus class failed. FB Dec 11 last dance at Longview SDC. He needs to get his reports trimmed down. Suggesting Federation help new callers by adding caller co-op into OFN Where & When.
@@ -114,13 +114,13 @@ State Fair: Will contact in Feb 2010. Four day spots available.
 
 
 
-**[Active Goodwill Ambassadors]{.underline}**
+**Active Goodwill Ambassadors**
 
 9.  Bramhall: They have 5" snow in their driveway.
 
 
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 10. Mike Kious should not sit at the table.
 11. S Eddings: MWF secretary got dropped from MWF program book.

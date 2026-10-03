@@ -10,13 +10,13 @@ September 18, 2022
 Maplewood Grange, Aurora
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 8:57 AM
 -   All present except ; ; Dave S (BMC), Lily Smith for Blake Smith; Kious; James
 -   Minutes: Motion ( Gary C / Betty C ) to accept minutes as corrected, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Ambassadors are Robert & Young Lumsden, Country Cut-Ups. Tellers Patty Cooper, Roberta Elder, Erin Kalmbach.
 -   1VP: Marilyn is going to inventory the artifacts
@@ -31,13 +31,13 @@ Maplewood Grange, Aurora
     -   Insurance: Now at 1405 dancers. No pricing yet. Paperwork distributed.
 -   Past Pres:-
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: 17 at the training session. Blanchet available 7/13-16/2023. Same price.
 -   Historian: Please check Chairman and Wood Award names
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   Licensing: -
 -   Youth:-
@@ -50,7 +50,7 @@ Maplewood Grange, Aurora
 -   Background Check: -
 -   Delegate Meeting: Had 8 councils present. Message is communication.
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Results of amendment voting: A: approved 37-3. B: approved 38-2. Now we need a committee to decide implementation. Motion (Gary C / Marilyn S) to destroy ballots, MSPU.
 -   Banner: Keith Miles willing to embroider something.
@@ -59,7 +59,7 @@ Maplewood Grange, Aurora
 
 **Installation Ceremony**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Motion (George H / Dave C) to approve 22-23 budget. MSPU.
 -   [Motion (George H / Pat C) to modify treasurer P&P to "independent review" not "audit". Betty asks if that is wise. Much irrelevant discussion. MSPU]{.mark}
@@ -71,18 +71,18 @@ Maplewood Grange, Aurora
 -   [Motion (Karyn B / Gil S) to elect Treasurer and 2nd Vice in odd years, and Secretary and Membership in even years. MSPU]{.mark}
 -   Current president needs to agree to 2 years Past President, current 1st Vice President needs to agree to 2 years President, 2 years Past President. Should we reconsider? The By-Laws change does not specifically say. We have flexibility in the P&Ps. Motion (Lorri M / Marilyn S) to change 1VP/Pres/Past to 6 year cycle. Motion fails. Stays a 3-year cycle.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   IH: Cece mentions Tami's non-support of Summer Festival and dissing of Rikki. She's right.
 -   MWA: Teen square dance festival will be in May in Washington.
 -   UAC: She says she's still not getting email
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Melissa James: -
 -   Robert Lumsden: -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   --
 

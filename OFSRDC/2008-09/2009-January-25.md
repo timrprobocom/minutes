@@ -23,7 +23,7 @@ Oregon Room
 
 
 
-**[Prelims]{.underline}**
+**Prelims**
 
 2.  Call to order 9:31
 3.  All present except for Reid; Gibbens, Smith, Schaumburg; Bro, Quigley; Bramhall, Churchill.
@@ -32,7 +32,7 @@ Oregon Room
 
 
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 6.  Pres: -
 7.  1VP: What do the clubs want? 09SF wants their $3000. Shouldn't take a motion to do it.
@@ -66,7 +66,7 @@ Oregon Room
 
 
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 14. Publicity: Contacting libraries to give out OFNs. Does not have a computer. Has revised the publicity and state reporter job description. PO Box 433, Gresham, OR.
 15. Financial (in absentia): Copies distributed.
@@ -75,7 +75,7 @@ Oregon Room
 
 
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 18. BMI/ASCAP: BMI $140. ASCAP 7.8c per dancer.
 19. Youth: Delivered buckets to PAC (for scholarships?). Purchased an Oregon youth banner.
@@ -89,7 +89,7 @@ Oregon Room
 
 
 
-**[Break]{.underline}**
+**Break**
 
 
 
@@ -97,7 +97,7 @@ Clarification of "Federated callers." No such thing. Trailers only for Federated
 
 
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 27. EE: Next year, 50th commemorative item as gift.
 28. IH: Point of contact is Helen Shriner.
@@ -109,7 +109,7 @@ Clarification of "Federated callers." No such thing. Trailers only for Federated
 
 
 
-**[Old Business]{.underline}**
+**Old Business**
 
 1.  Nothing on CPA/IRS committee.
 2.  Insurance bank account committee. Murphy: claims P&Ps cannot be changed because of the by-laws wording. By-laws change was proposed last time? Why wasn't that in the agenda? Section 4 of By-Laws. **AMENDMENT** read again. Vote 16-0, unanimous. Amendment adopted. John will send letter and send to Vivian for distribution.
@@ -118,19 +118,19 @@ Clarification of "Federated callers." No such thing. Trailers only for Federated
 
 
 
-**[New Business]{.underline}**
+**New Business**
 
 1.  They are establishing a committee to investigate possibility of punitive action against a club. Ashwill, Duyck, Wolf. There's nothing in the P&Ps that allows us to do that. Doesn't mean it's not possible.
 
 
 
-**[Active Goodwill Ambassadors]{.underline}**
+**Active Goodwill Ambassadors**
 
 2.  Λ
 
 
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 3.  61NSDC: Thanks.
 4.  Oregon sesquicentennial celebration; dance will be 11 to 12, 1 to 2, 3 to 4, in Capitol Rotunda on Feb 14.

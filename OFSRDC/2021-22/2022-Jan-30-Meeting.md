@@ -10,13 +10,13 @@ January 30, 2022
 Linn Co Fgds, Albany
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call t o order 8:59 AM
 -   All present except ; ; T Halley; D Stutzman; Putzler
 -   Minutes: Motion (Cece G / Marilyn S) to accept minutes as corrected, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Thanks to Karyn.
 -   1VP: -
@@ -31,13 +31,13 @@ Linn Co Fgds, Albany
     -   Insurance: 1251 dancers plus 200 in WA Fed.
 -   Past Pres:Remember to file Randall Award nominations.
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: Licensing seminar 12 people. Facebook 651 followers.
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   Licensing: Brooke Davison first report. ROUNDALAB has good info.
 -   Youth:35 youth in attendance, 6 scholarships.
@@ -50,13 +50,13 @@ Linn Co Fgds, Albany
 -   Background Check: -
 -   Delegate Meeting: ∆
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   ∆
 
 **RECESS (9:37)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Motion (Cece G / Gil S) to change background check expiration from 18 mo to 3 years. VII-29 and 30. MSPU.
 -   Report from nominating committee
@@ -70,19 +70,19 @@ Linn Co Fgds, Albany
 -   Guests, USDA Western Region VP LPaul and Sally Schmidt. March webinar on recruiting round dance cuers and teachers. Remember they have a scholarship.
 -   Betty Chipps asks about procedure for distributing the directories at the club level. Concerned about privacy. Wants a separate "travel guide". Not going to happen. Minutes in 2010 approved publishing directory online. Tim K suggests a "members-only" section, however we do it.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   COC: Paul Ostrom has taken over. Sagebrush Shufflers may go caller-run. Sundown folded. No Roundup this year..
 -   EE: Recycling all officers. Only one club dancing.
 -   PAC: B&B now 1/3/5 Wednesday. Happy Hoppers 1st Sat. Oaky Doaks went dark, meet in April
 -   TVC: More than half of clubs are requiring vaccination
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Roger & Linda Putzler:
 -   Melissa James: -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   SF22 requests $3,000 seed money. Budget has been submitted.
 -   Tim K says the banner is quite old. May be time to construct a new banner and frame. Gil wants to see the artwork first.

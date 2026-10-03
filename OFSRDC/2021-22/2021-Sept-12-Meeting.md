@@ -10,13 +10,13 @@ September 12, 2021
 Salem SDC
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call t o order 9:03 AM
 -   All present except Keck; Buchheit; Buchheit; Stutzman; others
 -   Minutes: Motion (Julia B/Zola J) to accept minutes as submitted, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: Thanks to everyone
 -   1VP: -
@@ -31,13 +31,13 @@ Salem SDC
     -   Insurance: -
 -   Past Pres:-
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity:
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP/SESAC:
 -   Youth:Scholarship went to Petrina Buchheit; she also got USDA
@@ -49,7 +49,7 @@ Salem SDC
 -   Background Check: -
 -   Delegate Meeting: Suggested recycling past year's nominees
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Motion (Betty C/ Cece G) to do 22-23 officer elections online with Google Forms, MSPU.
 -   Summer Festival 2022. No council wants to do it. TVC likes the 2019 model. COC liked 2019 model. RSQ and IH offering to host 2022 at Blanchet School July 15-17. Motion (Cece G/Marilyn S) to do that. MSPU.
@@ -58,7 +58,7 @@ Salem SDC
 
 **Installation of Officers**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Motion (Joyce W / Blake S) to approve 2021-22 budget. MSPU.
 -   Motion (Marilyn S / Betty C) to donate $1,000 to USDA scholarship fund. MSPU.
@@ -66,18 +66,18 @@ Salem SDC
 -   Julia B suggests to roll over previous Randall Award nominations from past 3 years. Isn't that just laziness? Can't the councils resubmit? It shouldn't be automatic. Motion (Cece G / Marilyn S) to roll over last 3 years nominees automatically. Gary points out we need permission from the nominees. Gil suggests a nomination be valid for 3 years. Cece intended it to be one-time only. MSPU
 -   Julia asks how folks are handling restarting
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   EE: Some are trying SSD
 -   RSQ: Diamond Lake made $4,500
 -   SCC: Everything still shut down
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Roger & Linda Putzler: ∆
 -   New ambassador is Melissa James
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Tim K: No more directories available
 

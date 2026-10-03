@@ -10,14 +10,14 @@ May 7, 2023
 Buckaroo Barn, Roseburg
 
 ∆
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 8:59 AM
 -   Motion (Doris K / Lori M) to seat Rod Skinner as 1st VP, Lois Muck as Past Pres, MSP
 -   All present except ; Karyn B, Terry H; Joyce Welton (COC); ; James, Lumsden
 -   Minutes: Motion (Joyce W / Doris K) to accept minutes as corrected, MSPU
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: -
 -   1VP: -
@@ -36,13 +36,13 @@ Buckaroo Barn, Roseburg
 ```
 -   Past Pres:-
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Education/Publicity: Have new festival flyer. Will do lessons flyer later. Bring lesson info to July meeting. Facebook up to 925.
 -   Historian: -
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   Licensing: -
 -   Youth:Silver City nearly swept the awards. 40 of 60 participants
@@ -55,7 +55,7 @@ Buckaroo Barn, Roseburg
 -   Background Check: -
 -   Delegate Meeting: Not happy with wording about supporting Washington State Festival. Perhaps we could use one of the existing festivals.
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   Election results:
     -   1st VP (3yr): Pat Cox (SCC)
@@ -71,7 +71,7 @@ Buckaroo Barn, Roseburg
 
 **RECESS (10:06)**
 
-**[New Business]{.underline}**
+**New Business**
 
 -   Motion (Dale B / Cherie C) to include policy statements in P&Ps. 5-7, fails.
 -   Motion (Dave C / Brooke D) to remodel and modernize the website. Better flow of communications. Chat things? What does Facebook not do? Could we do a mobile app? What would it do? Tour or tutorial? Would we hire a web designer? Passes, 10-4. Keeping content fluid means someone has to do it.
@@ -80,16 +80,16 @@ Buckaroo Barn, Roseburg
 -   Motion (Dale B / Dave C) to produce a public relations video for local television stations in a timely fashion. Hopefully as PSAs. COC has one from Jim Steele, RSQ has one from 2016 with Hunter Keller. Aim for some time in September. Pat says he was part of a video that will be released on TV. <https://squaredance.gen.or.us/tvspot/> 5-7, fails.
 -   Motion (Tami H / Marilyn S) to consider ORDTA-sponsored round dance weekend as a Summer Festival. Motion passes, 13-1. I think this is allowed in our P&Ps with no special procedures.
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   EE: One club had community dances, 19 guests and 40 guests
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   Melissa James: -
 -   Robert Lumsden: -
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   "Arizona Bill" getting posthumous centenary award
 -   Have July reports to her by July 6

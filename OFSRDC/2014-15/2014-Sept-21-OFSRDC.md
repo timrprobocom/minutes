@@ -158,7 +158,7 @@ Kay should not have agreed to be secretary since she's coming in 1VP. Either tha
 
 -   Motion (D Cooper / C Quigley) to change P&Ps section IX-2 lines 18 and 21 to change Goodwill Ambassador from 5-year term to 2-year term. MSPU
 
-**[Delegete Reports]{.underline}**
+**Delegete Reports**
 
 -   MWA: Rounds-R-Us leaving Federation.
 -   UAC: Buckaroos have 21 in lessons
@@ -167,11 +167,11 @@ Kay should not have agreed to be secretary since she's coming in 1VP. Either tha
 -   EE: Set of 3 clubs doing joint lessons. Council gave them $1,200 for bus sign ads.
 -   COC: Doug Hartzell memorial Sat 9/27 10 AM Redmond Grange.
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   x
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   Vivian: Directory p16 OFN Advisors: Ray Jones replaces Barbi Ashwill
 -   Harriet Livingston: Dance-a-Rama had 178 Oregon dancers, 99 Washington. Ended up with 478. She traveled extensively in 4 states, and often did not feel welcome.

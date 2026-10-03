@@ -17,13 +17,13 @@ Template
 September 21, 2014
 Salem Square Dance Center, Salem
 
-**[Prelims]{.underline}**
+**Prelims**
 
 -   Call to order 9:00 AM
 -   All present except x.
 -   Minutes:MOTION(Glidewell/CQuigley) to approve as corrected, MSPU.
 
-**[Officer Reports]{.underline}**
+**Officer Reports**
 
 -   Pres: x
 -   1VP: -
@@ -41,7 +41,7 @@ Salem Square Dance Center, Salem
 -   Past Pres:
     
 
-**[Appointed Officers]{.underline}**
+**Appointed Officers**
 
 -   Parliamentarian: -
 -   Financial Advisor:
@@ -49,7 +49,7 @@ Salem Square Dance Center, Salem
 -   Historian: -
     
 
-**[Committee Chairs]{.underline}**
+**Committee Chairs**
 
 -   BMI/ASCAP: -
 -   Youth:
@@ -59,26 +59,26 @@ Salem Square Dance Center, Salem
 -   State Trailers:
 -   Delegate Meeting:
 
-**[Unfinished Business]{.underline}**
+**Unfinished Business**
 
 -   x
 
 **RECESS**
 
 
-**[New Business]{.underline}**
+**New Business**
 
 -   x
 
-**[Delegate Reports]{.underline}**
+**Delegate Reports**
 
 -   x
 
-**[Ambassador Reports]{.underline}**
+**Ambassador Reports**
 
 -   x
 
-**[G.O.T.O.]{.underline}**
+**G.O.T.O.**
 
 -   x
 
